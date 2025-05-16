@@ -1,5 +1,5 @@
 ### Hi there 👋
-# John Alexander Díaz González
+# John Díaz
 
 Profile under construction
 
